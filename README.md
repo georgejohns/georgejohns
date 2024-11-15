@@ -3,7 +3,7 @@
  failed to realize they were super important for my degree, so here we are!
  SAS, GIS, and *now* R enthusiast studying the intersection of:
 **CLIMATE! CONFLICT! INDUSTRY! AND INFECTIOUS DISEASE!**
-spending mots of my time on here poking around at the datasets of folks far more impressive than i :-)
+spending most of my time on here poking around at the datasets of folks far more impressive than i :-)
 
 
 <!--
